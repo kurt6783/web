@@ -1,0 +1,1 @@
+<a href="http://127.0.0.1/CI/register/verification/LxZmX5tGJeyUQH9DWKS7">click</a>
